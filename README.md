@@ -1,4 +1,4 @@
-## Opa galera
+## Opa galera!
 
 - 🔭 Atualmente estou cursando Desenvolvimento de Sistema no Senai.
 - 👯 Curto muito esportes, musicas e festas... 
